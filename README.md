@@ -1,0 +1,2 @@
+# instatory
+Majalah Peretas
